@@ -2,14 +2,14 @@
 my most used skins in chronological order (top = most recent)
 a lot of them are missing rn but i simply do not care
 
-# [Rafis+Bao Bao (Minimal Edits)](https://castle.s-ul.eu/pIS13axG)
-![](https://i.imgur.com/P4kUK3h.png)
-
 # [Aristia Aireu (Minimal Edits)](https://castle.s-ul.eu/83mhymgq)
 ![](https://i.imgur.com/mNm91xN.png)
 
 # [ddddd+Ryuk Castle Edit](https://castle.s-ul.eu/Dt0SUWNL)
 ![](https://i.imgur.com/4tjShiA.png)
+
+# [Rafis+Bao Bao (Minimal Edits)](https://castle.s-ul.eu/pIS13axG)
+![](https://i.imgur.com/P4kUK3h.png)
 
 # [WhiteCat (1.0)](https://skins.osuck.net/index.php?newsid=1107)
 ![](https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg)
