@@ -2,6 +2,9 @@
 my most used skins in chronological order (top = most recent)
 a lot of them are missing rn but i simply do not care
 
+# [ddddd+Ryuk Castle Edit 2.1](https://castle.s-ul.eu/ZDgBJ0DV)
+![](https://i.imgur.com/JszLvgO.png)
+
 # [ddddd+Ryuk Castle Edit 2](https://castle.s-ul.eu/KUqLs5PU)
 ![](https://i.imgur.com/MaeywU0.png)
 
